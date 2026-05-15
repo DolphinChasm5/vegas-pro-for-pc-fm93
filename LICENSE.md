@@ -1,4 +1,4 @@
-# 
+# advanced Vegas Pro for PC | Vegas Pro for Windows Panel | collaboration-tools + color-grading is the best Vegas Pro for PC | Vegas Pro for Windows panel, featuring
 
 
 
